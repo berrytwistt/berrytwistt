@@ -1,3 +1,3 @@
-<img src="ссылка_на_картинку.png" align="left" width="300">
+<img src="UJLJ93m.jpeg" align="left" width="300">
 
 hello there!! ^u^ .
