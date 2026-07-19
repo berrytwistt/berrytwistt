@@ -5,7 +5,8 @@
   Again hello!! Call me Meizo or Eggy >_< /w. 15y.o (I LOVE WIFIES)
 </details>
 
-<img width="735" height="974" alt="UJLJ93m" src="https://github.com/user-attachments/assets/370694db-b90f-4f38-9c57-09df2bbf42c2" />
+<img width="1280" height="889" alt="5339290613117032641" src="https://github.com/user-attachments/assets/9d4d4385-849c-4c0a-9fde-52c9cc26234a" />
+
 
 
 
