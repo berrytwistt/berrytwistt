@@ -1,6 +1,9 @@
       . — Hello there !! -^w^- .
 
-
+<details>
+  <summary>▶☯ click too me! 🍾</summary>
+  Again hello!! Call me Meizo or Eggy >_< /w. 15y.o (I LOVE WIFIES)
+</details>
 
 <img width="735" height="974" alt="UJLJ93m" src="https://github.com/user-attachments/assets/370694db-b90f-4f38-9c57-09df2bbf42c2" />
 
