@@ -1,5 +1,5 @@
       . — Hello there !! -^w^- .
-        . c+h & int freely .      
+. c+h & int freely , But I often sit in AFK .      
 <details>
   <summary>▶☯ click too me! 🍾</summary>
        !.my eng is bad rn because I'm in russian(｡•́︿•̀｡)
