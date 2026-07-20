@@ -2,7 +2,7 @@
 
 <details>
   <summary>▶☯ click too me! 🍾</summary>
-  Again hello!! Call me Meizo or Eggy >_< /w. 15y.o (I LOVE WIFIES)
+       ! Call me Meizo or Eggy >_< /w. 15y.o (I LOVE WIFIES) .my eng is bad rn because I'm in russian(｡•́︿•̀｡)
 </details>
 
 <img width="1280" height="889" alt="5339290613117032641" src="https://github.com/user-attachments/assets/9d4d4385-849c-4c0a-9fde-52c9cc26234a" />
