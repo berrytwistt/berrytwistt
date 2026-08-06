@@ -12,8 +12,7 @@
 (˶ˆᗜˆ˵)
 
 
-<a href="https://sillymeizo.atabook.org/" target="_blank">
-  <img src="https://shields.io" alt="Atabook">
+
   
 
 
