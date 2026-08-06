@@ -8,6 +8,10 @@
 <img width="1280" height="889" alt="5339290613117032641" src="https://github.com/user-attachments/assets/9d4d4385-849c-4c0a-9fde-52c9cc26234a" />
 
 
+
+(˶ˆᗜˆ˵)
+
+
 <a href="https://sillymeizo.atabook.org/" target="_blank">
   <img src="https://shields.io" alt="Atabook">
 </a>
@@ -20,7 +24,6 @@
 
 
 
-.
 
 
 
