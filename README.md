@@ -1,7 +1,7 @@
       . — Hello there !! -^w^- .
  . c+h+k & int freely , But I often sit in AFK .      
 <details>
-  <summary>▶☯ click too me! 🍾</summary>
+  <summary>☯ click too me! 🍾</summary>
        !.my eng is bad rn because I'm in russian(｡•́︿•̀｡)
 </details>
 
