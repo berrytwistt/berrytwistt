@@ -11,4 +11,4 @@
   </tr>
 </table>
 
-[![Tiktok.](https://tiktok.com/@mmeizo0)
+[[Tiktok.](https://tiktok.com/@mmeizo0)
