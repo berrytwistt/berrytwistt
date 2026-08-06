@@ -6,7 +6,8 @@
       <p> ISFP-T , sp2 . 15 yrs.</p>
     </td>
     <td width="40%" align="center" valign="middle">
-      <img src="https://giphy.com" width="200" />
-    </td>
+      <img  /> <img width="498" height="482" alt="232" src="https://github.com/user-attachments/assets/ />
+
+   </td>
   </tr>
 </table>
