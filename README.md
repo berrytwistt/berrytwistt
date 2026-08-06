@@ -1,6 +1,6 @@
 <table border="0">
   <tr>
-    <td width="60%" valign="top">
+    <td width="40%" valign="top">
       <h1>Meizo / Meiz / Mei</h1>
       <p>she / he / her / his.</p>
       <p> ISFP-T , sp2 . 15 yrs.</p>
