@@ -11,12 +11,6 @@
 
 
 
-  
-
-
-<img width="638" height="48" alt="undefined - Imgur" src="https://github.com/user-attachments/assets/403fbe14-604d-4fdf-a3a1-571354ac9fc4" />
-
-
 
 .
 
