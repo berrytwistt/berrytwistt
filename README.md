@@ -13,4 +13,4 @@
 
 
 
-[Tiktok.](https://tiktok.com/@mmeizo0) [X](https://x.com/sillymeizorrlt) [About me#1](https://en.pronouns.page/@silly.meizo) [About me#2](https://mmm.page/sillymeizo) [Write anything about me.](https://sillymeizo.atabook.org)
+[Tiktok.](https://tiktok.com/@mmeizo0).    [X.](https://x.com/sillymeizorrlt)      [About me#1.](https://en.pronouns.page/@silly.meizo)      [About me#2.](https://mmm.page/sillymeizo)      [Write anything about me.](https://sillymeizo.atabook.org)
